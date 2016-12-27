@@ -1,4 +1,4 @@
 # hello-world
 *** \ ( = ^  o ^ = ) / *** !!!
 
-I love succulents and melodic death metal and abstract reasoning and getting drunk. I think that oftentimes I think about overthinking. kek. 
+Newly intrigued by the world of GIT!!! tyvm Octocat <333
